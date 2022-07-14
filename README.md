@@ -1,2 +1,3 @@
 All of Mine's LearnWeb3DAO projects Repo.
-I'm on a Freshman Track rn :)
+Freshman Track DONE.
+RN on the Sophomore Track Alhumdulilah :)
