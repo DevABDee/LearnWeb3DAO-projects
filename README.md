@@ -1,1 +1,1 @@
-LearnWeb3DAOFreshman Track projects Repo.
+LearnWeb3DAO Freshman Track projects Repo.
